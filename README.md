@@ -1,0 +1,2 @@
+# bidness
+normal games
